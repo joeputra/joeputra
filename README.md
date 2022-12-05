@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @joeputra
 - 👀 I’m interested to Make Something
-- 🌱 I’m currently learning Anything But i'm Focus in Web Desain
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
